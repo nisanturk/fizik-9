@@ -15,7 +15,7 @@ for the Spaghetti:
   * add the spaghetti and let it rest for 10 mins.
   * drain the pasta and cook it with the oil for 5 mins.
   * add the sauce and your meal is ready.
-
+![Pasta](https://images.app.goo.gl/7sepnjNA5WwyGRY77)
 
 ## vücut kütle indeksleri:
 * annem:20.58
